@@ -13,7 +13,7 @@ Amazoncard等を売っているdiscordshopです。
 
 ### discord server
 
-準備中
+休業中
 
 ### Support or Contact
 
